@@ -2,5 +2,5 @@
 1. Gibran Dwiharso Laksono
 2. Wildan Nur Fadillah 
 3. Ramzi Al-Hafiizh Alaferdy
-4. Faza Noiya
+4. Muhammad Faza Noiya
 
